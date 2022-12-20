@@ -1,6 +1,6 @@
 # OONI Pizza Oven Dough & Sauce
 
-Makes 4 12 inch Pizzas
+Makes 4, 12 inch Pizzas
 
 Created by Chuck Konkol @chukon
 
