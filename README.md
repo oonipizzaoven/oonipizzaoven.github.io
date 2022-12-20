@@ -2,6 +2,8 @@
 
 Makes 4 12 inch Pizzas
 
+Created by Chuck Konkol @chukon
+
 ## Dough
 
 1) Mix Below with wisk & let sit for 5 minutes
@@ -78,4 +80,4 @@ Use in your favorite pizza recipe!
 
 Refrigerate: Store in an airtight container in the refrigerator for up to one week. The sauce will thicken in the refrigerator, so be sure to let it come to room temperature or gently warm it in the microwave before using!
 
-Created by @chukon
+Updated by @chukon 12/20/2022
