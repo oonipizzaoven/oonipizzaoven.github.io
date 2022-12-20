@@ -77,3 +77,5 @@ Use in your favorite pizza recipe!
 ### To store:
 
 Refrigerate: Store in an airtight container in the refrigerator for up to one week. The sauce will thicken in the refrigerator, so be sure to let it come to room temperature or gently warm it in the microwave before using!
+
+Created by @chukon
