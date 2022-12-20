@@ -26,7 +26,7 @@ Created by Chuck Konkol @chukon
 
 6) Make dough into a ball
 
-7) Put a tbsp of olive oil in bowl and use paper towel to swipe oil all over inside of bowl
+7) Put a tbsp of olive oil in bowl and use paper towel to spread oil all over inside of bowl
 
 8) Use palm covered in olive oil and put oil all around dough ball
 
