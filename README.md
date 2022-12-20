@@ -74,7 +74,6 @@ Created by Chuck Konkol @chukon
 
 Mix tomato paste and sauce together in a medium size bowl until well combined (all the lumps of paste are incorporated into the sauce).
 Add the rest of the ingredients (oregano, Italian seasoning, garlic powder, onion powder, garlic salt, pepper and sugar) and mix well!
-Use in your favorite pizza recipe!
 
 ### To store:
 
