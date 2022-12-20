@@ -56,7 +56,7 @@ Created by Chuck Konkol @chukon
 
    - glass batter bowl
    - measuring spoons
-   - red spatula
+   - spatula
 
 ### Ingredients
 
