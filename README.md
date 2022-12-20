@@ -38,11 +38,11 @@ Created by Chuck Konkol @chukon
 
 12) Oil a cookie sheet or use wax paper and place the 4 dough balls
 
-13) Place some oil on tops of dough balls using fingers
+13) Putsome oil on tops of dough balls using fingers
 
 14) Place plastic wrap and dish towel over dough for 30 minutes
 
-15) Once OONI is 925 flatten out a dough ball using a sprinkle of flour on both sides
+15) Once OONI is 925 degrees flatten out a dough ball using a sprinkle of flour on hands and on both sides of dough
 
 16) Put a sprinkle of flour on peel
 
