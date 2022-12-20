@@ -22,7 +22,7 @@ Created by Chuck Konkol @chukon
 
 4) Add yeast mixture to flour/salt
 
-5) Mix will spoon until starting to form then use hands and kneed for 5 minutes
+5) Mix with spoon until starting to form then use hands and kneed for 5 minutes
 
 6) Make dough into a ball
 
