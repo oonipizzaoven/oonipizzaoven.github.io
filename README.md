@@ -12,7 +12,7 @@ Created by Chuck Konkol @chukon
 
    - 2 cup 105 degree water
 
-   - 2 tbsp active dry yeast
+   - 1 tbsp active dry yeast
 
    - 1/2 tsp sugar
 
