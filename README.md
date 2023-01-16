@@ -6,7 +6,7 @@ Created by Chuck Konkol @chukon
 
 ## Dough
 
-1) Mix Below with wisk & let sit for 5 minutes
+1) Mix Below with wisk & let sit for 10 minutes
 
    - Warm bowl in warm water first
 
