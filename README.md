@@ -10,7 +10,7 @@ Created by Chuck Konkol @chukon
 
    - Warm bowl in warm water first
 
-   - 2 cup 110 degree water
+   - 2 cup 105 degree water
 
    - 2 tbsp active dry yeast
 
