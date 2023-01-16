@@ -10,15 +10,17 @@ Created by Chuck Konkol @chukon
 
    - Warm bowl in warm water first
 
-   - 1 1/3 cup 90 degree water
+   - 2 cup 110 degree water
 
-   - 2 tsp active dry yeast
+   - 2 tbsp active dry yeast
 
    - 1/2 tsp sugar
 
+   - 1 1/2 tsp salt
+
 2) Mix 1 1/2 tbsp of olive oil to yeast mixture
 
-3) Mix 4 cups of flour and punch of salt
+3) Mix 4 1/4 cups of flour
 
 4) Add yeast mixture to flour/salt
 
