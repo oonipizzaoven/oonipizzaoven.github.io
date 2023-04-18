@@ -32,7 +32,7 @@ Created by Chuck Konkol @chukon
 
 9) Place plastic wrap over bowl and sit until double in size (about an hour)
 
-11) Take dough out and cut in four equal pieces.
+10) Take dough out and cut in four equal pieces.
 
 11) Make into 4 balls and sprinkle with flour and sit on wax paper for 15 minutes covered in plastic wrap
 
