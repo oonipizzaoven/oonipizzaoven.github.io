@@ -1,8 +1,6 @@
 # OONI Pizza Oven Dough & Sauce
 
-Makes 4, 12 inch Pizzas
-
-Created by Chuck Konkol @chukon
+Makes 4, 12-13 inch Crispy, Thin Pizzas
 
 ## Dough
 
