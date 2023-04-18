@@ -57,6 +57,8 @@ On fyra keep door off while rotating every 10-20 seconds until bottom of crust i
 
 22) Slice and serve!
 
+---
+
 ## Sauce
 
 ### Equipment
@@ -82,8 +84,12 @@ On fyra keep door off while rotating every 10-20 seconds until bottom of crust i
 Mix tomato paste and sauce together in a medium size bowl until well combined (all the lumps of paste are incorporated into the sauce).
 Add the rest of the ingredients (oregano, Italian seasoning, garlic powder, onion powder, garlic salt, pepper and sugar) and mix well!
 
-### To store:
+---
+
+## To store:
 
 Refrigerate: Store dough in an airtight container in the refrigerator for up to 3 days. The sauce will thicken in the refrigerator, so be sure to let it come to room temperature and add a little water to make a little thinner!
+
+---
 
 Updated by @chukon 04/17/2023
