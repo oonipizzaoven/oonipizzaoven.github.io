@@ -51,11 +51,13 @@ Created by Chuck Konkol @chukon
 18) Quickly place sauce, cheese and fav toppings
 
 19) Place pizza in OONI and turn down to 700 degrees by keeping closing damper a lttle (fyra) or flame down on propane model.
-On fyre keep door off while rotating every 10-20 seconds until bottom of crust is getting darker.
+On fyra keep door off while rotating every 10-20 seconds until bottom of crust is getting darker.
 
-20) Turn up flame (Fyra: open damper. Propabe: turn up flame) and cook while rotating every 10-20 seconds until toppings begin turning brown.
+20) Turn up flame (Fyra: open damper & close door. Propabe: turn up flame) rotating every 10-20 seconds until toppings turn brown.
 
-21) Remove and place in oven on warm setting until ready to serve
+21) Remove and place pizza in oven on keep warm setting until ready to serve
+
+22) Slice and serve!
 
 ## Sauce
 
