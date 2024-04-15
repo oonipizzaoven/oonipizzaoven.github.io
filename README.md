@@ -47,9 +47,7 @@ Makes 4, 12-13 inch Crispy, Thin Pizzas
 17) Quickly place sauce, cheese and fav toppings
 
 18) Place pizza in OONI and turn down to 700 degrees by keeping closing damper a lttle (fyra) or flame down on propane model.
-On fyra keep door off while rotating every 10-20 seconds until bottom of crust is getting darker.
-
-(OR place on Pizza Stone in Oven)
+On fyra keep door off while rotating every 10-20 seconds until bottom of crust is getting darker (OR place on Pizza Stone in Oven)
 
 19) Turn up flame (Fyra: open damper & close door. Propabe: turn up flame) rotating every 10-20 seconds until toppings turn brown (OR bake for about 15 minutes until cheese and crust is golden brown)
 
@@ -92,4 +90,4 @@ Refrigerate: Store dough in an airtight container in the refrigerator for up to 
 
 ---
 
-Updated by @chukon 04/17/2023
+Updated by @chukon 04/15/2024
