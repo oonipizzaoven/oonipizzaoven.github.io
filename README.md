@@ -8,54 +8,54 @@ Makes 4, 12-13 inch Crispy, Thin Pizzas
 
    - Warm bowl in warm water first
 
-   - 2 cup 105 degree water
+   - 2 1/2 cups 105 degree water
 
-   - 1 tbsp active dry yeast
+   - 2 tsp active dry yeast
 
-   - 1/2 tsp sugar
+   - 1 tsp sugar
 
-2) Mix 1 1/2 tbsp of olive oil to yeast mixture
+2) Mix 7 cups of flour & 1 1/2 tsp salt
 
-3) Mix 4 1/4 cups of flour & 1 1/2 tsp salt
+3) Mix 1 1/2 tbsp of olive oil to flour/salt mixture
 
 4) Add yeast mixture to flour/salt
 
-5) Mix with spoon until starting to form then use hands and kneed adding small sprinkles of flour while kneading until dough isn't sticky.
+5) Mix with spoon until starting to form then use hands and kneed adding small sprinkles of flour while kneading until dough isn't sticky. (10 minutes)
 
 6) Make dough into a ball
 
 7) Put a tbsp of olive oil in palm and cover dough ball
 
-8) Place dough ball in bowl and cover in plastic wrap and put in warm area like stove top
+8) Place dough ball in bowl and cover in plastic wrap and put in warm area for an hour to double in size
 
-9) Place plastic wrap over bowl and sit until double in size (about an hour)
+9) Take dough out and cut in four equal pieces.
 
-10) Take dough out and cut in four equal pieces.
+10) Make into 4 balls and sprinkle with flour and cover with kitchen towel for 30 minutes
 
-11) Make into 4 balls and sprinkle with flour and sit on wax paper for 15 minutes covered in plastic wrap
+11) flatten each ball with hand and use a little flour on both sides
 
-12) flatten each ball with hand and use a little flour on both sides
+12) Stretching/roll to make each dough cirle thin, about 12-13 inches
 
-13) Use rolling pin along with stretching to make each dough cirle thin, about 12-13 inches
+13) Place each floured flattened dough cirle between wax paper and place in refrigerator (can keep up to 3 days)
 
-14) Place each floured flattened dough cirle between wax paper and place in refrigerator (can keep up to 3 days)
+14) Get OONI to 900+ degrees (about 20 minutes) OR oven to 500 degrees
 
-15) Get OONI to 900+ degrees (about 20 minutes)
+15) Put a sprinkle of flour on peel
 
-16) Put a sprinkle of flour on peel
+16) Place flattened dough on peel and make sure dough moves by moving peel back and forth quickly
 
-17) Place flattened dough on peel and make sure dough moves by moving peel back and forth quickly
+17) Quickly place sauce, cheese and fav toppings
 
-18) Quickly place sauce, cheese and fav toppings
-
-19) Place pizza in OONI and turn down to 700 degrees by keeping closing damper a lttle (fyra) or flame down on propane model.
+18) Place pizza in OONI and turn down to 700 degrees by keeping closing damper a lttle (fyra) or flame down on propane model.
 On fyra keep door off while rotating every 10-20 seconds until bottom of crust is getting darker.
 
-20) Turn up flame (Fyra: open damper & close door. Propabe: turn up flame) rotating every 10-20 seconds until toppings turn brown.
+(OR place on Pizza Stone in Oven)
 
-21) Remove and place pizza in oven on keep warm setting until ready to serve
+19) Turn up flame (Fyra: open damper & close door. Propabe: turn up flame) rotating every 10-20 seconds until toppings turn brown (OR bake for about 15 minutes until cheese and crust is golden brown)
 
-22) Slice and serve!
+20) Remove and place pizza in oven on keep warm setting until ready to serve
+
+21) Slice and serve!
 
 ---
 
